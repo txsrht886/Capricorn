@@ -1,13 +1,18 @@
-# ScorpioProject
-三元四维两结合心理学研究
-
-
-
-
-## 原~昔拉水
-[查看](https://github.com/txsrht886/Water-bottle)
-
-## 原~玛门鱼
-[查看](https://github.com/txsrht886/Pisces)
-## 原~玛伊雅弥蝎
-[查看](https)
+# 原~萨麦尔羯
+12.22-1.19
+#特性
+1.	CAPRICORN不喜欢散发负能量也没兴趣传播什么正能量总之就是不想做出太招摇的事
+2.	CAPRICORN特别不怕孤独CAPRICORN可以一个人逛街、吃火锅甚至还挺享受的
+3.	那种吹牛逼的聚会就别叫CAPRICORN去了不然ta还得找借口推掉
+4.	CAPRICORN是隐藏很深的段子手偶尔蹦出几句话能让众人笑到发癫
+5.	别看ta一副没干劲的样子其实骨子里倔着呢!只要CAPRICORN打定主意完成某个目标就必须要拿下!
+6.	CAPRICORN天生就没什么嫉妒心对优秀的人只会发自内心地欣赏所以心态相当健康
+7.	虽然很成熟、懂很多但CAPRICORN却不喜欢和自己太像的人反而更喜欢简简单单、很单纯的人
+8.	ta是很好的倾诉对象有话你可以放心大胆地告诉CAPRICORN，CAPRICORN会自觉为你保密你不必担心CAPRICORN会告诉别人
+9.	80%的ta不关心运动步数排行多少90%的CAPRICORN甚至关掉了步数排名因为不想被人窥探
+10.	其实ta既善良又仗义可很多人却觉得CAPRICORN冷心冷情罢了，CAPRICORN也习惯被人误解了
+11.	ta虽然也渴望甜甜腻腻的爱情可CAPRICORN真正需要的是自由和空间所以不适合和控制欲太强的人在一-起
+12.	像CAPRICORN这种犟脾气只有足够温柔的人才能“驯服”CAPRICORN
+13.	CAPRICORN很护短因为CAPRICORN在乎的人本来就没几个所以CAPRICORN完全有时间和精力护短
+14.	CAPRICORN是个很酷的星座不是指外表看起来很A很帅而是灵魂很独特所以总是莫名的吸引人
+15.	90%的单身CAPRICORN都是主动单身的因为CAPRICORN们已经走上了“暴富最重要、爱情算个屁”的道路了
