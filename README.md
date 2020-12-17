@@ -17,7 +17,7 @@
 14.	CAPRICORN是个很酷的星座不是指外表看起来很A很帅而是灵魂很独特所以总是莫名的吸引人
 15.	90%的单身CAPRICORN都是主动单身的因为CAPRICORN们已经走上了“暴富最重要、爱情算个屁”的道路了
 
-* [死亡徘徊](https://github.com/txsrht886/death) 
+* 点击蓝色字查看，[死亡徘徊](https://github.com/txsrht886/death) 
 初步底线吧，点击蓝色字查看
 
 
